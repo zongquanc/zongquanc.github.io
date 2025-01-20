@@ -23,8 +23,8 @@ My research interest includes health policy and ADRD . I have published some pap
 
 
 # 🔥 News
-- *2022.02*: &nbsp;🎉🎉 Lorem ipsum dolor sit amet, consectetur adipiscing elit. Vivamus ornare aliquet ipsum, ac tempus justo dapibus sit amet. 
-- *2022.02*: &nbsp;🎉🎉 Lorem ipsum dolor sit amet, consectetur adipiscing elit. Vivamus ornare aliquet ipsum, ac tempus justo dapibus sit amet. 
+- *2024.04*: &nbsp;🎉🎉 Join Institution For Health Policy and Innovation(IHPI) and Michigan Medicine for Summer Internship
+- *2023.08*: &nbsp;🎉🎉 Start my Master Degree at University of Michian,School of Public Health,Health Management and Policy. 
 
 # 📝 Publications 
 
